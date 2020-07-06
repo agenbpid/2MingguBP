@@ -1,0 +1,20 @@
+# Mengapa BP Adalah Bisnis yang Tepat Bagi Pemula dan Pro
+
+Ippho Santosa sebagai founder British Propolis telah menjalani beragam jenis bisnis sejak usia muda. Beliau juga telah mendirikan kampus bisnis Umar Usman, yakni kampus yang menghasilkan lulusan para pebisnis sukses dan juga sholeh. Pengalaman panjang di dunia bisnis ini dibumikan salah satunya ke dalam sebuah produk bernama British Propolis. 
+
+British Propolis memiliki keunggulan-keunggulan ideal yang seharusnya dimiliki oleh sebuah produk. Keunggulan produk ini dapat menutupi beberapa kekurangan di sisi pebisnis pemula yang umumnya menjadi penyebab kegagalan mereka dalam memulai usaha.
+
+Beberapa keunggulan British Propolis yang dapat meningkatkan peluang kesuksesan pengusaha pemula, diantaranya:
+
+1. **Modal ringan**. Bisnis British Propolis dapat dijangkau oleh banyak kalangan yang memang ingin memulai usaha dengan modal terbatas. Dengan modal yang ringan, mitra BP dapat segera memulai usaha **tanpa melalui tahap produksi**. Mitra BP akan berfokus pada penjualan sehingga profit pun akan langsung didapatkan.
+2. **Segmen pasar luas**. British Propolis menawarkan solusi kesehatan dan penyembuhan penyakit, terutama penyakit yang umum diderita mayoritas masyarakat Indonesia bahkan global. Manfaat produk BP ini memudahkan mitra BP dalam menjangkau target market dan memperbesar peluang terjadinya penjualan.
+3. **Margin profit besar**. Mitra BP mendapatkan margin profit atau selisih keuntungan penjualan yang cukup besar. Profit yang besar ini dapat mempercepat pertumbuhan bisnis para mitra BP.
+4. **Repeat order tinggi**. Kualitas yang tinggi dari produk BP membuat konsumen dapat langsung merasakan khasiatnya dalam hitungan hari. Hal ini akan membuat konsumen membeli lagi dalam jangka waktu 3 pekan hingga 1 bulan. Konsumen bahkan dapat kita dorong untuk merekomendasikannya kepada orang lain. Tentunya tingkat repeat order yang tinggi akan sangat menunjang pertumbuhan dan keberlangsungan bisnis mitra BP.
+5. **Hemat space dan ongkir**. Segudang manfaat produk BP dienkapsulasi ke dalam ukuran botol 6ml yang mudah dibawa-bawa, tidak memakan banyak ruang penyimpanan dan tentunya meringankan ongkos kirim. Bahkan mitra BP masih dapat menanggung biaya pengiriman ke banyak wilayah dengan margin profit yang ada.
+6. **Pembinaan mitra intensif**. Bisnis BP memiliki visi mencetak pengusaha yang 5S, yakni pengusaha yang "Sukses, Sejahtera, Sehat, Sholeh dan Sakinah. Ippho Santosa dan para mentor memberikan bimbingan intensif dan rutin baik online dan offline untuk para mitra BP. Bimbingan yang disajikan bahkan tidak hanya seputar konsep dan tips bisnis, tapi juga ilmu tentang peningkatan kualitas keimanan, keluarga dan parenting. 
+7. **Komunitas yang supportif**. BP membangun ekosistem komunitas yang menunjang perkembangan semua mitranya. Dengan landasan berpikir bangkit dan sukses bersama, para mitra di komunitas BP saling mendukung dan bersinergi untuk sukses bersama membangun bisnis BP.
+8. **Marketing kit lengkap**. BP sebagai produk kesehatan premium sudah dipercaya dan digunakan oleh banyak kalangan. 4 tahun terakhir membuktikan bahwa BP menjadi jalan kesembuhan untuk banyak penyakit. Komunitas BP sudah mengumpulkan semua testimoni pengguna dari berbagai jenis penyakit yang berhasil sembuh wasilah British Propolis. Semua rekaman testimoni baik dalam bentuk foto maupun video dapat digunakan oleh mitra BP untuk memudahkan penjelasan khasiat kepada calon konsumen. Selain itu, BP juga digunakan oleh banyak tokoh nasional, meliputi artis, ulama dan tenaga medis. Semua foto dan video rekomendasi para tokoh ini dapat menjadi bahan iklan yang dapat meningkatkan prestise produk di mata calon konsumen.
+
+
+
+Bisnis BP juga tidak hanya ramah bagi para pemula di bisnis, tapi juga sangat prospektif bagi orang-orang yang sudah berkecimpung di dunia usaha dan jual beli. Bila Anda adalah orang yang sudah terbiasa berwirausaha, tentunya Anda sudah dapat melihat sendiri potensi yang besar dari bisnis BP. Penjelasan teknis potensi bisnis BP lebih lengkap dibahas di artikel berjudul "[Apakah BP Bisnis MLM?](04-Apakah-BP-BBisnis-MLM.md)".
